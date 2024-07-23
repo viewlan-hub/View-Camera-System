@@ -1,1 +1,1 @@
-介绍请看Wiki(维基)📖
+介绍请看view-vcs.mysxl.cn📖
